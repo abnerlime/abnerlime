@@ -2,6 +2,7 @@
 
 
 - 🌱 Cursando Engenharia da computação
+- ⌨️ viciado em tecnologia
 - 😄 Pronomes: Ele/dele
 - ⚡ Jogador de Brawl Stars
 
