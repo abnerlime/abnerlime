@@ -2,7 +2,7 @@
 
 
 - 🌱 Cursando Engenharia da computação
-- 😄 Pronouns: Ele/dele
+- 😄 Pronomes: Ele/dele
 - ⚡ Jogador de Brawl Stars
 
   <div>
